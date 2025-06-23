@@ -1,0 +1,1 @@
+# Stima_Makalah_13523081
